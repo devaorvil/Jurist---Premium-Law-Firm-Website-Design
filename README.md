@@ -1,5 +1,3 @@
-Jurist-Premium Law Firm Website Design | Modern, Responsive & Professional Legal Website Concept.
-
 Jurist – Premium Law Firm Website Design
 
 A modern, elegant, and professional law firm website design created for Jurist, a legal services brand. This project focuses on building a strong professional identity through refined typography, sophisticated layouts, clean visuals, and intuitive navigation.
